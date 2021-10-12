@@ -1,1 +1,3 @@
 # Recept
+
+print("recept")
