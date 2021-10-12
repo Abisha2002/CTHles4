@@ -1,6 +1,6 @@
 # *Recept voor pasta carbonara*
 ---
-![alt text](pasta.jpeg) 
+![alt text](Pasta.jpeg) 
 
 ### **Dit heb je nodig:** 
  3 liter kraanwater 
