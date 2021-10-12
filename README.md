@@ -19,3 +19,6 @@
  
  #### Stap 3:
  Giet de spaghetti af en vang een kopje kookvocht op. Doe de spaghetti direct terug in de pan en voeg, van het vuur af, de pancetta toe. Voeg al roerend met een houten lepel de saus toe. Blijf roeren tot de saus iets is ingedikt en aan de pasta blijft hangen. Voeg zo nodig wat kookvocht toe om een smeuïger geheel te krijgen. Verdeel over diepe borden en serveer direct met de rest van de kaas.
+
+ #### Dit is hoe je het makkelijkst pasta carbonara kan maken. 
+ --- 
